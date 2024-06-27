@@ -1,5 +1,5 @@
 <b>𝐅𝐈𝐗𝐈𝐍𝐆 𝐇𝐄𝐑𝐎𝐊𝐔 𝐁𝐀𝐍 𝐏𝐑𝐎𝐁𝐋𝐄𝐌</b>
-
+by rasta
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
